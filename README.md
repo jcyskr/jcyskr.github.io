@@ -1,1 +1,0 @@
-# jcyskr.github.io
